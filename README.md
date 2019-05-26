@@ -39,7 +39,7 @@ The match is halted when Daniel uses a scissor leg technique to trip Johnny, del
 Johnny a nose bleed. Kreese directs Johnny to sweep Daniel's injured leg, an unethical move. Johnny looks horrified at the order, 
 but reluctantly agrees. As the match resumes, Johnny seizes Daniel's leg and delivers a vicious blow, doing further damage. 
 Daniel, standing with difficulty, assumes the "Crane" stance, a technique he observed Mr. Miyagi performing on a beach. Johnny 
-lunges toward Daniel, who jumps and delivers a front kick to Johnny's face, winning the tournament. Johnny, having gained newfound
+lunges toward Daniel, who jumps and delivers a front kick to Johnny's face, winning the tournament. Johnny having gained newfound
 respect for his nemesis, presents the trophy to Daniel himself, as Daniel is carried off by an enthusiastic crowd.
 
 ![title](Karate_kid.jpg)
