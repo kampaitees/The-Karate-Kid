@@ -42,4 +42,4 @@ Daniel, standing with difficulty, assumes the "Crane" stance, a technique he obs
 lunges toward Daniel, who jumps and delivers a front kick to Johnny's face, winning the tournament. Johnny, having gained newfound
 respect for his nemesis, presents the trophy to Daniel himself, as Daniel is carried off by an enthusiastic crowd.
 
-![title](https://en.wikipedia.org/wiki/File:Karate_kid.jpg)
+![title](Karate_kid.jpg)
